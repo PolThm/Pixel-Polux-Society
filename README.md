@@ -1,2 +1,1 @@
-# pixel-polux-society
-http://pixel-polux-society.tk/
+https://pixel-polux-society.tk/
